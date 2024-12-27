@@ -1,0 +1,2 @@
+# EMU679_2024GuzProject_Batihan_Burcu_Izzet
+EMU679_2024GuzProject_Batihan_Burcu_Izzet
